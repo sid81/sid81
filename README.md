@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 Contact me-->
 
-LinkedIn(https://www.linkedin.com/in/sidhant-satapathy-3a7059149/)||Gmail(sidhant.satapathy81@gmail.com)||Twitter(https://twitter.com/Sidhantsatapat2)
+LinkedIn (https://www.linkedin.com/in/sidhant-satapathy-3a7059149/) ||Gmail (sidhant.satapathy81@gmail.com) ||Twitter (https://twitter.com/Sidhantsatapat2)
 
 
 
